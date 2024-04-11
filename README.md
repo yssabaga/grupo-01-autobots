@@ -31,7 +31,7 @@ Repetimos hasta terminar con las rebanadas de pan.
 
 - - -
 
-![Imagen Pan Frances](C:\Users\YSSABAGA\Pictures\panfrances.jpg "Pan Frances")
+![Imagen Pan Frances](https://www.lanacion.com.ar/resizer/v2/pain-perdu-tostada-de-pan-con-leche-huevo-y-7LHF5MX7GREA3ND4ET2BD5JMUY.jpg?auth=404b2a325b87b68e8ca3c066f23f099e2a07cac2de4bc3a7ee33389170502b50&width=420&height=280&quality=70&smart=true "Pan Frances")
 
 - - -
 
