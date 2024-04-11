@@ -12,13 +12,16 @@
 - Canela
 - Aceite
 
+
+
+
 - - -
 
 ## **Preparación**
 
 En un recipiente lo suficientemente grande, para una rebanada de pan realizaremos lo siguiente:
 
-Vaciamos los 2 huevos en el recipiente y a este le añadimos la 1/2 taza de leche y las 3cdas de vainilla, revolvemos hasta lograr una mezcla liquida homogenea.
+Vaciamos los 2 huevos en el recipiente y a este le añadimos la 1/2 taza de leche y las 3 cdas. de vainilla, revolvemos hasta lograr una mezcla liquida homogenea.
 
 En un recipiente pequeño colocaremos la azucar y la canela y revolvemos hasta que quede bien mezclada y apartamos.
 
@@ -27,5 +30,10 @@ Ponemos a calentar un sarten con un poco de aceite y ya que este caliente proced
 Repetimos hasta terminar con las rebanadas de pan.
 
 - - -
+
+![Imagen Pan Frances](C:\Users\YSSABAGA\Pictures\panfrances.jpg "Pan Frances")
+
+- - -
+
 
 
