@@ -50,3 +50,46 @@
 </div>
 
 <BR><BR><BR>
+
+###  MODO DE PREPARACION.
+----------------------------------
+<br>
+
+1. Licúa los tomates verdes con el chile serrano, 2 dientes de ajo, ¼ pieza de cebolla, el consomé de pollo, la Leche Evaporada, el queso parmesano y 6 ramas de cilantro; 
+calienta a fuego medio durante 5 minutos. Disuelve la fécula de maíz en el agua, agrega a la salsa y calienta por 5 minutos más o hasta que espese ligeramente, 
+moviendo constantemente para evitar que se pegue. 
+
+2. Calienta un poco de aceite en una sartén y fríe ligeramente las tortillas sin que endurezcan, retira y 
+coloca sobre papel absorbente. Rellena las tortillas con pollo, sirve 3 piezas en un plato y baña con la salsa.
+
+3. Coloca un poco de queso sobre las enchiladas, cubre con plástico adherente y calienta en el microondas por 30 
+segundos o hasta que el queso esté fundido. Decora con un poco de cebolla morada y Media Crema
+
+<BR><BR><BR><BR><BR>
+
+### VISITANOS EN NUESTRAS DIFERENTES PLATAFORMAS PARA MAS RECETAS.
+
+<BR><BR>
+
+
+
+ ![Youtube](https://cdn-icons-png.flaticon.com/128/1384/1384060.png) [Youtube](https://www.youtube.com/channel/UC0p9VAbW9UwUbInfCtuWN1w/videos)
+
+<br> 
+<br> 
+<br> 
+
+![TikTok](https://cdn-icons-png.flaticon.com/128/13673/13673995.png) [TikTok](https://www.tiktok.com/@delination.mx?is_from_webapp=1&sender_device=pc)
+
+ <br>
+ <br>
+ <br>
+
+
+![FaceBook](https://cdn-icons-png.flaticon.com/128/5968/5968764.png)[FaceBook](https://www.facebook.com/Delination.MX)
+ 
+<br>
+<br>
+<br>
+
+![Instagram](https://cdn-icons-png.flaticon.com/128/1409/1409946.png)[Instagram](https://www.instagram.com/delination/)
